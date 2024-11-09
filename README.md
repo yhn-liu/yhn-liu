@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Helios Yuhan Liu 刘宇涵
+# Hi there 👋 I'm Yuhan 'Helios' Liu 刘宇涵
 
 **I'm currently an undergradute student at the Southern University of Science and Technology.**
 
